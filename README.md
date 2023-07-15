@@ -1,1 +1,0 @@
-# SipayBootcamp_SadifeEfrunEvdi
